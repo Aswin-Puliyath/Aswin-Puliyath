@@ -4,7 +4,7 @@
 
 - 📫GMail **aswinpuliyath@gmail.com**
 
-- 📄 Resume https://bit.ly/3WnVcIo
+- 📄 Resume https://drive.google.com/file/d/1kg175y6XL4BG0ZonNsj-bJlTkdWdT7B7/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
